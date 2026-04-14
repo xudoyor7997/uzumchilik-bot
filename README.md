@@ -1,1 +1,0 @@
-# uzumchilik-bot
